@@ -6,3 +6,5 @@
 
 中文字体: 娃娃体 - 简
 [Link](https://www.dynacw.com.cn/product/product_download_detail.aspx?fid=9)
+
+Just play. Have fun!
